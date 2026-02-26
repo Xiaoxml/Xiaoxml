@@ -1,4 +1,3 @@
-![tumblr_828719bf87ad8f1e9cfe6f4292b556f5_477692ef_500](https://github.com/user-attachments/assets/4c8756c8-92ae-4589-9779-f9ca13d8bf4c)![tumblr_828719bf87ad8f1e9cfe6f4292b556f5_477692ef_500](https://github.com/user-attachments/assets/a4ee7927-4df2-4255-b93a-6a707308cdda)
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦✦ . 　⁺ 　 . ✦ . 　⁺ 
 # ‎ ‎ ‎ ㅤㅤㅤㅤㅤ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀‎ And still, I read you .
